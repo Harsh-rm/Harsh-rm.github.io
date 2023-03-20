@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Harsh
+- 👋 Hey, I’m Harsh
 - 👀 I’m interested in ... Machine Learning and Life Science!
 - 🌱 I’m currently learning ... Machine Learning!
 - 💞️ I’m looking to collaborate on ... AI and ML projects!
