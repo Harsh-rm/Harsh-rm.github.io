@@ -1,6 +1,6 @@
 - 👋 Hey, I’m Harsh
-- 👀 I’m interested in ... Machine Learning and Life Science!
-- 🌱 I’m currently learning ... Machine Learning!
+- 👀 I’m interested in ... Machine Learning and Web Development!
+- 🌱 I’m currently learning ... How to build a Web Application!
 - 💞️ I’m looking to collaborate on ... AI and ML projects!
 - 📫 How to reach me ... harshu98@gmail.com
 - Project Ideas ... Creating an AI like Jarvis for my future home! Develop an integrated app that would help man to develop the activities of the brain and learn infinitely!
