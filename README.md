@@ -7,8 +7,3 @@
 🧗 Project Ideas => Creating an AI (like Skynet) that would help solve Human Problems and even Crisis!
 💡 Long-term Goal => Develop an integrated application that would help man evolve his thoughts and activities to learn everlastingly!
 💭 Thought for the Day => Aim for the stars! Even if you miss, you might land on the moon.
-
-<!---
-Harsh-rm/Harsh-rm is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
