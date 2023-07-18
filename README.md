@@ -1,5 +1,5 @@
-👋 Hey, My name is Harshith Roopa Manjunath
-💼 I'm currently looking for a Software Development
+👋 Hey, My name is Harshith Roopa Manjunath  
+💼 I'm currently looking for a Software Development<br>  
 🔭 I’m interested in => Running, Rock Climbing, Math, Machine Learning, UNIX-like Operating Systems, and Web Development!
 🌱 I’m currently learning => How to build a Web Application with the help of Node.js!
 🔥 I’m looking to collaborate on => Software Projects that are related to my GitHub Repos!
