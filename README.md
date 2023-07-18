@@ -4,6 +4,6 @@
 🌱 I’m currently learning &nbsp;&nbsp;=> How to build a Web Application with the help of Node.js!<br>
 🔥 Looking to collaborate => on Software Projects that are related to my GitHub Repos!<br>
 📧 You can ping me &emsp;&emsp;&nbsp;=> on Slack connect at harshu98@gmail.com or on Discord at Harsh#1998<br>
-🧗 Project Ideas &emsp;&emsp;&emsp;&nbsp;=> Creating an AI (like Skynet) that would help solve Human Problems and even Crisis!<br>
-💡 Long-term Goal &emsp;&emsp;&emsp;=> Develop an integrated application that would help man evolve his thoughts and activities to learn everlastingly!<br>
+🧗 Project Ideas &emsp;&emsp;&emsp;&emsp;=> Creating an AI (like Skynet) that would help solve Human Problems and even Crisis!<br>
+💡 Long-term Goal &emsp;&emsp;&nbsp;=> Develop an integrated application that would help man evolve his thoughts and activities to learn everlastingly!<br>
 💭 Thought for the Day &emsp;&emsp;&emsp;=> Aim for the stars! Even if you miss, you might land on the moon.<br>
