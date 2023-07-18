@@ -1,5 +1,5 @@
-👋 Hey, My name is Harshith Roopa Manjunath<br>
-💼 I'm currently looking for a Software Development Role in the Silicon Valley<br>
+👋 Hey there, my name is Harshith Roopa Manjunath, you can call me Harsh for short.<br>
+💼 I'm currently looking for a Software Development Role in Silicon Valley.<br>
 🔭 I’m interested in => Running, Rock Climbing, Math, Machine Learning, UNIX-like Operating Systems, and Web Development!<br>
 🌱 I’m currently learning => How to build a Web Application with the help of Node.js!<br>
 🔥 I’m looking to collaborate on => Software Projects that are related to my GitHub Repos!<br>
