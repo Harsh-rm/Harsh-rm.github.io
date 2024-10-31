@@ -7,4 +7,4 @@
 🧗 Project Ideas &emsp;&emsp;&emsp;&emsp;=> Creating an AI (like Skynet) that would help solve Human Problems and even Crisis!<br>
 💡 Long-term Goal &emsp;&emsp;&nbsp;&nbsp;&nbsp;=> Develop an application that would help us evolve in thought and action, enabling us to learn everlastingly!<br>
 💭 Thought for the Month (Oct 2024) &emsp;=> Doing the same work every day is boring and no matter how far you might have travelled everything that you have known will collapse, so what's the meaning of life then? There is no fundamental answer, you've just got to live, grow and die. It's only our cycle of thoughts and questions that needs transformation to reflect any change in our daily living. <br><br>
-Thank you for reading, please feel free to reach out to me!
+Thank you for reading, please feel free to reach out to me for anything or nothing!
