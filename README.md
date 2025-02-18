@@ -5,7 +5,7 @@
 🔭 Long-term Goal &nbsp;&nbsp;-> *Develop Software Systems that would help us evolve in thought and action, enabling us to learn everlastingly*! <br><br>
 🌊 My weekly hobbies &nbsp;-> *Yoga* 🧘 *Rock Climbing* 🧗 *and Skateboarding* 🛹 : *fostering the growth of balance in Mind and Body*. <br><br>
 💭 Thought for the Month (Feb 2025) <br>
-> Take a moment to Breathe in and out even while riding the waves, sink in the beauty of the earth, and express it through action and words
+> Take a moment to Breathe in and out even while riding the waves, sink in the beauty of the earth, and express it through your own actions and words 😊
 
-✉️ You can ping me &nbsp;-> on Slack connect at **harshu98@gmail.com** or on Discord at **Harsh#1998** <br><br>
-P.S. Thank you for reading. Please feel free to reach out to me or get connected on [LinkedIn](https://www.linkedin.com/in/harshith-rm-834806201/) <br><br>
+✉️ You can ping me &nbsp;-> *on Slack connect at **harshu98@gmail.com** or on Discord at **Harsh#1998*** <br><br>
+P.S. *Thank you for reading. Please feel free to reach out to me or get connected on [LinkedIn](https://www.linkedin.com/in/harshith-rm-834806201/)* <br><br>
