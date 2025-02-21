@@ -7,5 +7,5 @@
 💭 Thought for the Month (Feb 2025) <br>
 > Take a moment to Breathe in and out even while riding the waves, sink in the beauty of the earth, and express it through your own actions and words 😊
 
-✉️ You can ping me &nbsp;-> *on Slack connect or Drop me an Email at **harshu98@gmail.com*** <br><br>
+✉️ You can ping me &nbsp;-> *on Slack connect or drop an Email at **harshu98@gmail.com*** <br><br>
 P.S. *Thank you for reading. Please feel free to reach out to me or get connected on* [LinkedIn](https://www.linkedin.com/in/harshith-rm-834806201/) <br><br>
